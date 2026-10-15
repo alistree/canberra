@@ -5,7 +5,7 @@
 ![詹姆斯库克大学毕业证样本（澳洲jcu学位文凭证书样式展示）](https://www.cererfi.com/uploads/img1/20261015/6ad016d03a1b3.jpg)
 
 
-?? *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/55.html](https://www.cererfi.com/auzhou/55.html) 未经授权禁止用于商业用途。*
+ *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/55.html](https://www.cererfi.com/auzhou/55.html) 未经授权禁止用于商业用途。*
 
 
 
