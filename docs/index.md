@@ -4,6 +4,7 @@
 
 ![澳大利亚天主教大学毕业证样本（澳洲ACU学位文凭证书样式展示）](https://www.cererfi.com/uploads/img1/20261011/6acbb00b7884f.jpg)
 
+💡 *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/720.html](https://www.cererfi.com/auzhou/720.html) 未经授权禁止用于商业用途。*
 ---
 
 ## 2026年澳洲ACU文凭设计：经典与现代的视觉融合
